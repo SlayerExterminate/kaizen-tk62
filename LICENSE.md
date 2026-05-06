@@ -1,4 +1,4 @@
-
+custom kaizen Script offers the most advanced kaizen Script, with auto-collect and private server access. Perfect for dominating any match.
 
 
 
